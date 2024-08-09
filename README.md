@@ -1,4 +1,4 @@
-## Bad Omens melhor banda 🦧
+## **Bad Omens** melhor banda 🦧
 
 <!--
 **Jellylixx/jellylixx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
